@@ -10,7 +10,7 @@
 </p> 
 <br> 
 
-- 🏢 I'm
+- 🏢 I'm Ahmed Ali (Banzema)
 - 👨‍💻 As a 
 - 💬 Ask me abou
 - ⚡ Fun Fact:
