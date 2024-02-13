@@ -1,11 +1,11 @@
+#  Ahmed Ali (Banzema)
 
+**`Multi passionate(Amateur Developer/Creator)`**
 
-<h3 align="center">
-  Welcome to Ahmed Ali's profile!
-  **`Digital Craftsman (Developer/Filmmaker/Creator)`**
-
-  <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="28">
-</h3>
+• person with entrepreneurship mindset who is always looking for a better life and love to learn, Experience, risk  <br>
+• Study and learn business and marketing
+And learn about technology in your free time
+(📖☕⚽📝🧑‍💻💹🎥)
 
 <!-- Typing SVG by DenverCoder1 - https://github.com/DenverCoder1/readme-typing-svg -->
 <p align="center">
