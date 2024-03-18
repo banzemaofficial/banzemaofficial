@@ -12,18 +12,6 @@ And learn about technology in your free time
 </p> 
 <br> 
 
-- 🏢 I'm Ahmed Ali (Banzema)
-- 👨‍💻 As a 
-- 💬 Ask me abou
-- ⚡ Fun Fact:
-- 👨‍💻 Check ou
-
-### Connect with Me :
-
-
-
-;
-
 
 
 
